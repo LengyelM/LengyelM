@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Michael Lengyel
+- 👀 I’m interested in coding, farming/gardening, video games, DnD, and anime
+- 🌱 I’m currently learning coding, farming/gardening, and religion
+- 💞️ I’m looking to collaborate on work with my friends, possibly some coding projects
+- 📫 How to reach me lengyel.m@hotmail.com
